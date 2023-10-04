@@ -10,4 +10,9 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I took French in high school and college. I was French Honor Society President in high school!
 
-## Languages ![image](https://github.com/fjh321/fjh321/assets/64885403/fd6ebbd2-83a7-45f0-bcd1-edf97d390d95)
+## Languages 
+![image](https://github.com/fjh321/fjh321/assets/64885403/cf865b54-b787-45de-8dfd-82a6fdc23ac7)
+![image](https://github.com/fjh321/fjh321/assets/64885403/42bc8b9b-9c42-442c-ba52-7deeec9edc42)
+![image](https://github.com/fjh321/fjh321/assets/64885403/3a3aaf00-0d3e-43b3-bf27-c7047422d214)
+![image](https://github.com/fjh321/fjh321/assets/64885403/7df9e27c-2402-4a74-934e-f8d17c0a1d0b)
+
